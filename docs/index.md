@@ -48,11 +48,11 @@ Montag - Samstag um 8 Uhr.
 
 _[https://www.dompfarre-eisenstadt.at/](https://www.dompfarre-eisenstadt.at/)_
 
-Montag - Samstag um 18.30 Uhr. Sonntag um 11 Uhr.
+Wochentags um 18.30 Uhr. Sonn- und Feiertags um 11 Uhr.
 
-[Zu den Details.](https://www.dompfarre-eisenstadt.at/index.php/gottesdienste-termine/ankuendigungen/199-livestream-platzhalter)
+[Zu den Details.](https://www.dompfarre-eisenstadt.at/index.php/gottesdienste-termine/ankuendigungen/210-karwoche-live-aus-dem-martinsdom)
 
-[Zum YouTube Kanal.](https://www.youtube.com/channel/UCBVimlLyujE6wlrbXYqlQtA)
+[Zum Livestream.](https://www.dompfarre-eisenstadt.at/index.php/gottesdienste-termine/livestream)
 
 
 ## Radio Maria Österreich (Audio)
