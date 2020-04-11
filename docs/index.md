@@ -33,6 +33,15 @@ Montag - Samstag um 18 Uhr. Sonntag um 9 Uhr.
 [Zum YouTube Kanal.](https://www.youtube.com/channel/UCdCAb_U5dSGM_YnPXA1271g)
 
 
+## Pfarre Mönchhof (Video)
+
+_[https://pfarremoenchhof.at/](https://pfarremoenchhof.at/)_
+
+[Zu den Details.](https://pfarremoenchhof.at/termine/)
+
+[Zum YouTube Kanal.](https://www.youtube.com/channel/UCBnX4UaGsQxeUMlmoBnsj4g)
+
+
 ## Loretto Gebetskreis (Video)
 
 _[https://loretto.at/](https://loretto.at/)_
