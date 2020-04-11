@@ -11,6 +11,15 @@ Täglich um 12 Uhr Mittags.
 [Zum YouTube Kanal (https://www.youtube.com/missioaustria).](https://www.youtube.com/missioaustria)
 
 
+## Wallfahrtskirche Maria Schutz (Video)
+
+_[https://mariaschutz.at/](https://mariaschutz.at/)_
+
+[Zu den Details.](https://mariaschutz.at/veranstaltungskalender/liveuebertragung/)
+
+[Zum YouTube Kanal.](https://www.youtube.com/channel/UCHPQQQVPsOgolL9P-vji7tg)
+
+
 ## Pfarre Apetlon und Illmitz (Video)
 
 _[https://www.pfarre-apetlon.at/](https://www.pfarre-apetlon.at/)_
