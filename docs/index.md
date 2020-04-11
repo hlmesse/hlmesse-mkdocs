@@ -11,6 +11,15 @@ Täglich um 12 Uhr Mittags.
 [Zum YouTube Kanal (https://www.youtube.com/missioaustria).](https://www.youtube.com/missioaustria)
 
 
+## Loretto Gebetskreis "HOME Church" (Video)
+
+_[https://loretto.at/](https://loretto.at/)_
+
+[Zu den Details (https://www.home-church.cc/).](https://www.home-church.cc/)
+
+[Zum YouTube Kanal.](https://www.youtube.com/channel/UCkMngUkMuoOUuLvbUYw6XVg)
+
+
 ## Wallfahrtskirche Maria Schutz (Video)
 
 _[https://mariaschutz.at/](https://mariaschutz.at/)_
@@ -40,15 +49,6 @@ _[https://pfarremoenchhof.at/](https://pfarremoenchhof.at/)_
 [Zu den Details.](https://pfarremoenchhof.at/termine/)
 
 [Zum YouTube Kanal.](https://www.youtube.com/channel/UCBnX4UaGsQxeUMlmoBnsj4g)
-
-
-## Loretto Gebetskreis (Video)
-
-_[https://loretto.at/](https://loretto.at/)_
-
-[Zu den Details (https://www.home-church.cc/).](https://www.home-church.cc/)
-
-[Zum YouTube Kanal.](https://www.youtube.com/channel/UCkMngUkMuoOUuLvbUYw6XVg)
 
 
 ## Erzdiözese Wien (Video)
