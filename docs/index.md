@@ -51,6 +51,15 @@ _[https://pfarremoenchhof.at/](https://pfarremoenchhof.at/)_
 [Zum YouTube Kanal.](https://www.youtube.com/channel/UCBnX4UaGsQxeUMlmoBnsj4g)
 
 
+## Pfarre Dürnkrut (Video)
+
+_[http://pfarreduernkrut.at/](http://pfarreduernkrut.at/Pfarre_2.htm)_
+
+[Zu den Details.](http://pfarreduernkrut.at/Pfarrblatt/termine_live_stream.pdf)
+
+[Zum YouTube Kanal.](https://www.youtube.com/channel/UCCunxil3RqtDdM9j8d7NIig)
+
+
 ## Erzdiözese Wien (Video)
 
 _[https://www.erzdioezese-wien.at/](https://www.erzdioezese-wien.at/)_
