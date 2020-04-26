@@ -15,7 +15,7 @@ Täglich um 12 Uhr Mittags.
 
 _[https://loretto.at/](https://loretto.at/)_
 
-[Zu den Details (https://www.home-church.cc/).](https://www.home-church.cc/)
+[Zu den Details (https://www.home-church.tv/).](https://www.home-church.tv/)
 
 [Zum YouTube Kanal.](https://www.youtube.com/channel/UCkMngUkMuoOUuLvbUYw6XVg)
 
