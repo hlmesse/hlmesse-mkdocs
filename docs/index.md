@@ -29,6 +29,15 @@ _[https://mariaschutz.at/](https://mariaschutz.at/)_
 [Zum YouTube Kanal.](https://www.youtube.com/channel/UCHPQQQVPsOgolL9P-vji7tg)
 
 
+## Pfarre Pöllauberg (Video)
+
+_[https://poellauberg.graz-seckau.at/](https://poellauberg.graz-seckau.at/)_
+
+[Zu den Details.](https://poellauberg.graz-seckau.at/pfarre/6355/kalender)
+
+[Zum YouTube Kanal.](https://www.youtube.com/channel/UC63UwHz7FM-1ntv6alzfj4Q)
+
+
 ## Pfarre Apetlon und Illmitz (Video)
 
 _[https://www.pfarre-apetlon.at/](https://www.pfarre-apetlon.at/)_
